@@ -1,17 +1,25 @@
- ![image](https://github.com/user-attachments/assets/11ea124b-5139-42c8-a941-b61a598fe268) 🎻 🐾 
+![image](https://github.com/user-attachments/assets/2db11438-86b1-4918-82ee-a48f3371bb4f)
+![image](https://github.com/user-attachments/assets/a906bf66-4efc-49cd-afbd-1535e1552b18)
 
-![image](https://github.com/user-attachments/assets/9c95c791-1692-4758-bd97-d2b261da7329)౨ৎ︵⠀⠀ 🐕
+ '  ༘🐟⋆₊ ⊹ paycheck gang amirite !
 
-* ꕀ 🏷️ sometimes c+h . . idk ![image](https://github.com/user-attachments/assets/176661ce-2444-4ed0-bf7b-2934c400766c)
-* ![image](https://github.com/user-attachments/assets/9bf9acc9-a6c2-4a9e-b3a8-cba20eb5aab7)
- im usually near: sp dw bakery plaza docks ![image](https://github.com/user-attachments/assets/0fcaa390-a67f-4533-9c4b-ee6b8ae7fc68)
-
-* ![image](https://github.com/user-attachments/assets/819fa518-dc61-4377-bb30-22cf77f93fad)
- check out my other socials ty.ꕀꕀ
-
- ![image](https://github.com/user-attachments/assets/adecdc63-0abc-4a4d-8d2f-0dd1b451e0d8) ᶻz ∿
+   ![image](https://github.com/user-attachments/assets/1d143c1c-86de-4bd3-8a99-dc149b289da6)
   
-![image](https://github.com/user-attachments/assets/c980590e-53f7-469e-9427-fd06b05405f6)
+   dni if you don't believe in self improvement & that's coming from someone who's actually improving here ':)c ⋆
+     
+
+࿔*:･ﾟ where am i at? : south park, hillside, docks, bakery, library. ![image](https://github.com/user-attachments/assets/44b91515-6201-4095-9806-b3f3e15d2273)
+
+୭˚. stuff abt me: uhh i like to read/ draw . dark muddy colors are my fav . plants r cool ! multifandom . i like to yap about gore, human psychology & things . . ![image](https://github.com/user-attachments/assets/2c7e564a-c092-470f-b134-4554a0d99b7e)
+
+
+ ![image](https://github.com/user-attachments/assets/b09e43ba-7c2a-4fe1-9f0f-2bc3701cd1e9) 
+ srry if dry resp or just no resp at all, im usually drawing/reading or my anxiety kicked in 
+
+![image](https://github.com/user-attachments/assets/48640f88-f398-4e28-9f74-81823df0549b)  ᶻz ⸝⸝⸝ 
+  
+![image](https://github.com/user-attachments/assets/dfab1b0e-3d1b-433d-9f87-d357c576136a)
+
 
 
 <!--
