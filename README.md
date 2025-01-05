@@ -11,11 +11,14 @@
 
    ![image](https://github.com/user-attachments/assets/776b2c23-2e23-4da0-aba9-7a8025f3a2e6)
   
-   dni if you don't believe in self improvement & that's coming from someone who's actually improving here ':)c ![image](https://github.com/user-attachments/assets/850a3549-1208-4906-a1dc-11de487e3fb3)
+   ![image](https://github.com/user-attachments/assets/850a3549-1208-4906-a1dc-11de487e3fb3) 
+   ꕀꕀ dni ꕀꕀ  pedos . zoos . racism . map/yap 
+
+heavy dni : spr*nki
 
 
 
-   ![image](https://github.com/user-attachments/assets/82f1bbe6-ed16-4778-8410-661f013757fa)
+   ![image](https://github.com/user-attachments/assets/82f1bbe6-ed16-4778-8410-661f013757fa) 
 
 
 
