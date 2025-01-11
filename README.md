@@ -12,7 +12,8 @@
    ![image](https://github.com/user-attachments/assets/776b2c23-2e23-4da0-aba9-7a8025f3a2e6)
   
    ![image](https://github.com/user-attachments/assets/850a3549-1208-4906-a1dc-11de487e3fb3) 
-   ꕀꕀ dni ꕀꕀ  pedos . zoos . racism . map/yap 
+   ꕀꕀ dni ꕀꕀ  
+   pedos . zoos . racism . map/yap : calvin dni
 
 heavy dni : spr*nki
 
