@@ -1,22 +1,24 @@
-![image](https://github.com/user-attachments/assets/34ae3c9b-f717-4a9b-ace4-f0290063eb41)
+![image](https://github.com/user-attachments/assets/a0bff129-cec5-4cb6-8afb-ebb9563074fc)
+
+𖤣𖥧𖡼 welcome
+
+𖢥 any1 can int w me, idm 
+　 　　　![image](https://github.com/user-attachments/assets/d9262dfd-be1d-4181-a55c-31e3ffac148e)
+
+　 　　　im usually offtab, pls whisp 　 　　　　 🐛
+
+𖠣 i'll allow c+h sometimes
+
+ ![image](https://github.com/user-attachments/assets/85e1deea-98e0-435c-9601-c7239f40580a)
+　 　　　　 🌿. ⋆⸜  ![image](https://github.com/user-attachments/assets/e437049d-e3d9-4c64-8181-76233bb00d81) 
+　 　　🐞
 
 
-‹ welcome
+꩜ basic dni 
 
-␥ any1 can int w me, idm 
-　 　　　![image](https://github.com/user-attachments/assets/f62d28f4-fa25-40ff-9e45-49e762336e49)
-
-　 　　　im usually offtab, pls whisp
-
-⤿ i'll allow c+h sometimes
-
- ![image](https://github.com/user-attachments/assets/1c392cf2-49ee-4e2a-b504-daae441bff1f)
-　 　　　　 🌿. ⋆⸜  ![image](https://github.com/user-attachments/assets/49f534a0-78ba-4bf6-8cce-643157eea4d8)
+![image](https://github.com/user-attachments/assets/a0e2d6db-1183-4edc-881b-3e671b5f909e) ![image](https://github.com/user-attachments/assets/6717e008-c5a6-45de-91ac-0777ce1266b1) ![image](https://github.com/user-attachments/assets/3d7dae45-b717-463c-8a8d-eadaf90cfee2)
 
 
-𝄞 basic dni 
-
-![image](https://github.com/user-attachments/assets/6b2f731c-0dd2-48c2-9d79-950e8aa79d60) ![image](https://github.com/user-attachments/assets/856f337c-1063-4033-89ad-05d898625dfb) ![image](https://github.com/user-attachments/assets/e02aa80d-939e-4535-9568-716b30e0dd7c)
 
 **heavy dni on rp & sprunki, go away**
 
